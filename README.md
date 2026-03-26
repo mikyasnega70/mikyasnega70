@@ -8,3 +8,4 @@ I enjoy learning new technologies, building web applications and improving my co
 - 💬 Always open to collaborate, share ideas, and learn from the developer community.
 
 Let's connect and build something great!
+🔗 https://www.linkedin.com/in/mikyas-nega-7456b2387
